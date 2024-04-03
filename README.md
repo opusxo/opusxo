@@ -1,16 +1,14 @@
-### Hi there 👋
+![Alt text](https://64.media.tumblr.com/f34b5f8f78f7185af2ac0417c710b409/0237d70da99bce4f-99/s1280x1920/122c102ac4f6169e4a50be6e5b3877e18b8968b9.pnj) 
 
-<!--
-**opusxo/opusxo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://imgur.com/gCyL96V.png">
+<p align="center"> 
+◝𐑨———— ♡ ————𐑧◜
+</p>
+<p align="center"> 
+rosemary or ryan ;; pls read my rentry to get to know me <3
+</p>
+<p align="center"> 
+◠◠◠◠◠◠◠
+</p>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![Alt text](https://64.media.tumblr.com/f34b5f8f78f7185af2ac0417c710b409/0237d70da99bce4f-99/s1280x1920/122c102ac4f6169e4a50be6e5b3877e18b8968b9.pnj)
