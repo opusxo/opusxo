@@ -6,7 +6,7 @@
 ◝𐑨———— ♡ ————𐑧◜
 </p>
 <p align="center"> 
-rosemary or ryan ;; pls read my rentry to get to know me <3
+rosemary or ryan ;; pls read my strawpage to get to know me <3 and leave some gimmicks !!
 </p>
 <p align="center"> 
 ◠◠◠◠◠◠◠
